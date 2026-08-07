@@ -1,9 +1,6 @@
 ## ghbdtn
 
 
-<h1 align="center"> некоя антикошка сп7 прлщица............</h1>
-
-
 ![](https://komarev.com/ghpvc/?username=anti699999999999999999999999999&color=dd7991)
 
 
